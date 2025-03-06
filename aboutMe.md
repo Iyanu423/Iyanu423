@@ -10,5 +10,6 @@ Skills:
 Fun fact😁
 
 i'am a very skilled pencil artist. If youre interested in my art works please feel free to reach out to me.
+
 Feel free to connect with me on LinkedIn (iyanu423)
 GitHub (iyanu423) or by email (iyanu423@gmail.com).
